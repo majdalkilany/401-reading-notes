@@ -7,6 +7,7 @@ the pain is different from vsuffering
 Suffering is pain without purpose. Pain with no higher goal. Pain with no dreams.
 
 
+
 As you experience pain, seek the remedy! Ask questions that bridge the gap between what you know and what you need to be able to do. Research! Build your resources and your community! Don’t experience the pain in silence—that slides toward needless pain and the realm of suffering.
 
 Search for  the common thread that makes the pain worthwhile .
